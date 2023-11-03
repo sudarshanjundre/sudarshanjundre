@@ -5,8 +5,8 @@
 
 -💬 Ask me about anything, I am happy to help.
 -📬 How to reach me: 
-                    ● sudarshanjundre@gmail.com
-                    
+                            ● sudarshanjundre@gmail.com
+                            ● https://github.com/sudarshanjundre
 
 
 
